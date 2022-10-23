@@ -1,2 +1,1 @@
-# Kronos Research
-  # team5 229好想喝酒
+# Kronos Research - team 5
